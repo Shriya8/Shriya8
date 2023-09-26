@@ -1,5 +1,5 @@
 #### Cybersecurity & Software Development Professional
-![Software Development Professional](https://media.licdn.com/dms/image/C5603AQFeFTSS5WbIHw/profile-displayphoto-shrink_400_400/0/1660773063073?e=1701302400&v=beta&t=yCUt28PZDwoucE_pDvhSsEb_3CiDrXkB6nzgViSv1_g)
+![Software Development Professional](https://media.licdn.com/dms/image/C5603AQFeFTSS5WbIHw/profile-displayphoto-shrink_800_800/0/1660773063073?e=1701302400&v=beta&t=yCUt28PZDwoucE_pDvhSsEb_3CiDrXkB6nzgViSv1_g)
 
 I am from the Bay Area and looking for Software Development Opportunity.
 
