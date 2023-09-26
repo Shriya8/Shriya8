@@ -1,5 +1,5 @@
 #### Cybersecurity & Software Development Professional
-![Software Development Professional](https://pbs.twimg.com/profile_images/1701280981532155904/YAmaK2k8_400x400.jpg' alt='twitter' height='40')
+![Software Development Professional](https://pbs.twimg.com/profile_images/1701280981532155904/YAmaK2k8_400x400.jpg)
 
 I am from the Bay Area and looking for Software Development Opportunity.
 
